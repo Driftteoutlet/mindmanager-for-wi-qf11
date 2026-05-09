@@ -1,4 +1,4 @@
-
+MindManager for Windows professional Tool: offline-access & search-functionality is the best MindManager for Windows tool, featuring offline-access and search-functionality.
 
 
 
